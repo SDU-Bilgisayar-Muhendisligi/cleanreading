@@ -1,1 +1,0 @@
-Sunumun nasıl olacağını daha sonra belirleyeceğim.
